@@ -1,4 +1,4 @@
-history-of-the-dbc-chicago-shovel
+The Super Official History of the DBC Chicago Shovel
 =================================
 
 ##Purpose
