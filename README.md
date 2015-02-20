@@ -12,7 +12,7 @@ This is the official history of the DBC Chicago Shovel.  The shovel has a long a
 4.  The new Keeper of the Shovel will take a pic with their predecessor and attach it to this repo.
 5.  The Keeper of the Shovel must hide the shovel in DBC, and if anyone finds it, the keeper of the Shovel must give them a treat. Via Natalie, Coyotes 2014.
 6.  The Keeper of the Shovel must visit Starbucks twice in one day once a week.  Via Simon, Salamanders 2014.
-7.  The Keeper of the Shovel will maintain this repo.  This includes adding your rule to the list, your Shovel-passing pic to the repo and your name to the Contributions section below.  Via Jennie, Bobolinks 2014.
+7.  The Keeper of the Shovel will maintain this repo.  This includes adding your rule to the list and your name to the Contributions section below.  Via Jennie, Bobolinks 2014.
 8. The Keeper of the Shovel must change it's hiding location before the Monday of the following week (Any time during the weekend. Via Santi, Praying Mantises 2014
 9. Each time the Shovel is hidden, the Keeper of the Shovel must make up a riddle about the Shovel and its whereabouts. Via Gina, Wolves 2014.
 10. Each time the shovel is passed to the next cohort, one rule must be added and ONE RULE MUST BE REMOVED. via Nodira, Bluegills 2014-15.
