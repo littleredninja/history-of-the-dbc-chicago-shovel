@@ -23,6 +23,7 @@ The shovel.
 ##Contributions
 [Jennie](https://github.com/littleredninja), Bobolinks 2014
 [Santi](https://github.com/sbaus42), Praying Mantises 2014
+[Gina](https://github.com/rockrgrrl), Wolves 2014
 
 ##Licenses
 
